@@ -4,6 +4,12 @@ alternative als diese in github zu sichern. bitte respektiert und zensiert
 die namen von menschen die jünger sind als ihr selber falls ihr das lesen
 und verwenden wollt, danke
 
+Urs Blum scheint diese um 2013 jeweils zu löschen, weil sie aufzeigen würden wie Urs Blum versucht hat mich zum Terroristen / Amokläufer umzuprogrammieren, was leider nicht geklappt hat Urs, HAHA
+
+
+
+Die Tagebücher sind gedacht für gleichaltrige und Jüngere, damit wenn andere Geisteskranke Väter das selbe mit ihnen tun sich besser verteidigen können. Ausserdem sind diese Studien-Daten gemäss Lizenz (die "zufällig" jemand gelöscht hat) für alle gleichaltrigen und jüngeren Studenten, so dass man allenfalls selektoren programmieren könnte, um wenn andere Kinder angegriffen werden das rechtzeitig helfen zu können bevor schlimmeres passiert.
+
 
 Tue 30 Jun 2020 06:45:43 PM CEST
 Marc jr. Landolt
