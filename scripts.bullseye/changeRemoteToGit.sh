@@ -1,3 +1,3 @@
 #!/bin/bash
 
-git remote set-url --push origin git@github.com:braindef/HackersCardgame10.git
+git remote set-url --push origin git@github.com:braindef/HackersCardgame11.git
